@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on programing and developing.
 - 📫 How to reach me @yaboytr1mmy on IG 
 - 😄 Pronouns: .......... he
-- ⚡ Fun fact: Will will look back at this in a few years time and go thank f*** we linked up!!
+- ⚡ Fun fact: we will look back at this in a few years time and go thank f*** we linked up!!
 
 GET IN TOUCH AND LETS BUILD SOMEHTING GRATE!
 
